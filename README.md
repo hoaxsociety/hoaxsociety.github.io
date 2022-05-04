@@ -1,3 +1,0 @@
-# Hoax Society
-
-Coming soon
